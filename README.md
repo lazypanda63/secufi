@@ -100,7 +100,7 @@ Pull requests are welcome! If you have suggestions for improving Secufi or want 
 
 **Nandu A Lal**  
 Cybersecurity & AI Enthusiast | India 🇮🇳  
-Connect on [LinkedIn](https://www.linkedin.com) or contribute right here!
+Connect on [LinkedIn](https://www.linkedin.com/in/nandu-a-lal-a01693249/) or contribute right here!
 
 ---
 
